@@ -1,1 +1,1 @@
-# My first business-page design.
+# My first business page design.
